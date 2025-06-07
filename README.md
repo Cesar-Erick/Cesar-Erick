@@ -1,4 +1,3 @@
-## Erick Cesar 👋
 
 # Erick Cesar
 
